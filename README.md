@@ -4,4 +4,4 @@
 
 
 
-YO WHATS UP GUYS @CATHIQSM HEREE!!! yayayayaya!! guys follow me im SO cool ok bye bahahahahahaha
+YO WHATS UP GUYS @shokiiri HEREE!!! yayayayaya!! guys follow me im SO cool ok bye bahahahahahaha
