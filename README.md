@@ -1,5 +1,5 @@
 <p align="center">
-  <img src="https://files.catbox.moe/k55347.jpg" />
+  <img src="https://files.catbox.moe/yrvynv.jpg" />
 <p align="center">
-  <img src="https://komarev.com/ghpvc/?username=emigirle&color=blue" />
+  <img src="https://komarev.com/ghpvc/?username=emigirle&color=green" />
 </p>
